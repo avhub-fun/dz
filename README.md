@@ -1,6 +1,6 @@
-更新日期：06月18号（如果还是链接失败，可以发邮箱给我们给予反馈，感谢。）
+更新日期：06月19号（如果还是链接失败，可以发邮箱给我们给予反馈，感谢。）
 
-AvHub国内最新网址 [https://avhuba19.com.com](https://avhuba19.com)
+AvHub国内最新网址 [https://avhuba20.com.com](https://avhuba20.com)
 
 AvHub海外永久地址（需要VPN）www.avhub360.com
 
