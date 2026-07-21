@@ -6,7 +6,7 @@ AvHub海外永久地址（需要VPN）www.avhub360.com
 
 AvHub国内备用地址：https://hub.tqitfyi.cc
 
-商务合作：
+商务合作：https://p4n2m.t6vhns-t1t1.icu?channel=JW001
 
 感谢您的支持，欢迎向我们提出更多建议以及与好友分享我们的资源！
 
