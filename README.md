@@ -6,8 +6,10 @@ AvHub海外永久地址（需要VPN）www.avhub360.com
 
 AvHub国内备用地址：https://hub.tqitfyi.cc
 
+商务合作：
+
 感谢您的支持，欢迎向我们提出更多建议以及与好友分享我们的资源！
 
-回家的路：
+回家的路：https://p4n2m.t6vhns-t1t1.icu?channel=JW001
 
 方法一：收藏蘑菇视频官方最新发布地址https://github.com/avhub-fun/dz
