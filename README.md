@@ -1,15 +1,22 @@
-更新日期：07月27号（如果还是链接失败，可以发邮箱给我们给予反馈，感谢。）
+AvHub回家的路 (本公告更新日期：2026年9月4日)
+发送任意邮件可获取最新地址
+AvHub官方邮箱 avhua.fun@gmail.com
+官方最新地址
+AvHub 国内最新网址https://www.avhub42.com
 
-AvHub国内最新网址 [https://avhub23.com](https://avhub23.com)
+AvHub 海外永久地址（需要VPN） https://www.avhub360.com
 
-AvHub海外永久地址（需要VPN）www.avhub360.com
+失联后如何找到回家的路👇：
+方法1:加入AvHub 电报官方总览群：https://t.me/avhub1
 
-AvHub国内备用地址：https://hub.tqitfyi.cc
+方法2:邮箱发送任意内容邮件可获取最新地址
+官方邮箱： avhua.fun@gmail.com
 
-商务合作：https://p4n2m.t6vhns-t1t1.icu?channel=JW001
+方法3:收藏AvHub官方最新地址发布页 https://github.com/avhub-fun/dz/blob/main/README.md
 
-感谢您的支持，欢迎向我们提出更多建议以及与好友分享我们的资源！
+方法5:加入AvHub官方频道、用户群组
+AvHub官方公告频道（Telegram） https://t.me/avhub1
+AvHub官方求番号交流频道（Telegram） https://t.me/avhub2
+AvHub官方官方用户群（Telegram） https://t.me/avhub3
 
-回家的路：https://p4n2m.t6vhns-t1t1.icu?channel=JW001
-
-方法一：收藏蘑菇视频官方最新发布地址https://github.com/avhub-fun/dz
+商务合作请 点击 https://p4n2m.t6vhns-t1t1.icu?channel=JW001
