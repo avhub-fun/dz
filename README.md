@@ -14,9 +14,9 @@ AvHub 海外永久地址（需要VPN） https://www.avhub360.com
 
 方法3:收藏AvHub官方最新地址发布页 https://github.com/avhub-fun/dz/blob/main/README.md
 
-方法5:加入AvHub官方频道、用户群组
+方法4:加入AvHub官方频道、用户群组
 AvHub官方公告频道（Telegram） https://t.me/avhub1
 AvHub官方求番号交流频道（Telegram） https://t.me/avhub2
-AvHub官方官方用户群（Telegram） https://t.me/avhub3
+AvHub官方用户群（Telegram） https://t.me/avhub3
 
 商务合作请 点击 https://p4n2m.t6vhns-t1t1.icu?channel=JW001
