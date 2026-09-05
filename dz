@@ -2,7 +2,7 @@ AvHub回家的路 (本公告更新日期：2026年9月4日)
 发送任意邮件可获取最新地址
 AvHub官方邮箱 avhua.fun@gmail.com
 官方最新地址
-AvHub 国内最新网址https://www.avhub42.com
+AvHub 国内最新网址https://www.avhub43.com
 
 AvHub 海外永久地址（需要VPN） https://www.avhub360.com
 
