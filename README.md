@@ -10,7 +10,7 @@ AvHub 海外永久地址（需要VPN） https://www.avhub360.com
 方法1:加入AvHub 电报官方总览群：https://t.me/avhub1
 
 方法2:邮箱发送任意内容邮件可获取最新地址
-官方邮箱： avhua.fun@gmail.com
+官方邮箱： avhubvip@proton.me
 
 方法3:收藏AvHub官方最新地址发布页 https://github.com/avhub-fun/dz/blob/main/README.md
 
