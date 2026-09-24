@@ -1,4 +1,4 @@
-<img width="1394" height="949" alt="image" src="https://github.com/user-attachments/assets/095d6a6d-220d-4376-8ec6-b08e25bc073b" />AvHub回家的路 (本公告更新日期：2026年9月9日)
+AvHub回家的路 (本公告更新日期：2026年9月24日)
 发送任意邮件可获取最新地址
 AvHub官方邮箱 avhua.fun@gmail.com
 官方最新地址
